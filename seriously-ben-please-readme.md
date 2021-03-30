@@ -4,9 +4,7 @@ read it and no you dont even have to read it its okayúű
 
 # !!!!!!!!!!!!!!!!!!!!MUST B FOLLOWED STEOP BY STEPÉ!!!!!!!!!!!!!!!!!!!!
 
-so first thuing you wanna do is put that pack.mcmeta or what file in your folder i attached it somewhere (i edited it so trhat its compatible with 1.16 and stuff tell meif you want to change the description but its nit impoertant so dont worry about it its sometgig like that the fuck and some xs and ds) and it will create stff like .vs or whwst folderand stuff IF YOU DID IT CORREXCTLY
-
-i just realized that i can put it right here lmaoamaoa sroyy so here it is: 
+so wfirdt thing you wanna do is put the 
 
 necxgt thing i did is like th draw sometghing like the thumbnail tin h sdo here::::
 
